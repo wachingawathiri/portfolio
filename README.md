@@ -28,7 +28,7 @@
 
 ● Engage with clients during field work on the bank products and relay any enquiries or feedback they may have
 
-## PROJECT
+## PROJECTS
 
 **Content Developer – ENGAGE – University of Nairobi Project.**
 
